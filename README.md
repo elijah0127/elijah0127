@@ -2,14 +2,20 @@
 
 ## Info
 박엘리
+
 female
+
 born 040127
+
 Gumi, South Korea
+
 YU CSE 22311960
 
 ## Links
 E-mail - elijah12@hanmail.net
+
 Instargram - elijah_0127
+
 Blog - elijah12_/naver/blog.com
 
 
