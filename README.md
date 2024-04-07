@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 ## Info
-  박엘리
+  박엘리/n
   female
   born 040127
   Gumi, South Korea
