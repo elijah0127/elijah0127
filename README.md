@@ -12,9 +12,9 @@ YU CSE 22311960
 ## Links
 E-mail - elijah12@hanmail.net
 
-Instargram - elijah_0127
+Instargram - [elijah_0127](https://www.instagram.com/elijah_0127/)
 
-Blog - elijah12_/naver/blog.com
+Blog - https://blog.naver.com/elijah12_
 
 
 <!--
