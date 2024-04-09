@@ -14,7 +14,6 @@ E-mail - elijah12@hanmail.net
 
 Instargram - [elijah_0127](https://www.instagram.com/elijah_0127/)
 
-Blog - (https://blog.naver.com/elijah12_)
 
 
 <!--
