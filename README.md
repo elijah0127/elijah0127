@@ -14,6 +14,8 @@ E-mail - elijah12@hanmail.net
 
 Instargram - [elijah_0127](https://www.instagram.com/elijah_0127/)
 
+Notion - [Winter Vac Project](https://resolute-ninja-35b.notion.site/185acf0eadf3801e9294d7f200338c82?pvs=4)
+
 
 
 <!--
