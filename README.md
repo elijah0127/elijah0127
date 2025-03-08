@@ -1,8 +1,6 @@
 ## Info
 박엘리
 
-female
-
 born 040127
 
 Gumi, South Korea
